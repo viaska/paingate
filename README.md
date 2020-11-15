@@ -1,4 +1,4 @@
-2020年11月14日最新网址：www.paingatebt.com      （中国大陆可上）
+2020年11月14日最新网址：http://www.painbt.com （中国大陆可上）
 
 
 2020年10月10日最新网址：http://www.pain-gate.com (用VPN翻场可以上，被大陆屏闭)
