@@ -1,6 +1,7 @@
 2021年4月28日最新网址http://www.gatesm.com/ （中国大陆可用）
 
 http://www.painbt.com （用VPN翻场可以上，被大陆屏闭）
+
 http://www.pain-gate.com (用VPN翻场可以上，被大陆屏闭)
 
 
